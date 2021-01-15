@@ -1,4 +1,4 @@
-# test
-test python scripts
+# DDOS SCRIPT [SOON]
+ZHSDDOS SCRIPT!!
 soon...
 DDOS SCRIPT BETA BY ZHOSTY AND K0NARKI.
